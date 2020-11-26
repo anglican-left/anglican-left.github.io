@@ -1,3 +1,7 @@
+# Anglican-Left
+
+## Community
+
 Welcome to the Anglican Left mailing list, a meeting place for Anglicans/Episcopalians and others in general agreement with traditions of Christian social justice and witness that have been identified as 'left' or 'socialist'. We do not expect to agree on everything, but we do share a common belief that the pursuit of justice and the correction of oppression lie at the very heart of our Faith, announced by the Prophets, proclaimed in the Gospels, and shown forth in the Sacraments. We recognize, too, that God is ever at work outside the formal structures of the Church, in movements among the poor for a more just economic order, in the struggles for full equality of women, of racial, ethnic, and other minorities (including LGBTIQ+ people), and in those who work for peace. It is intended simply as a small, safe place of our own, where we can exchange ideas, news, and something of ourselves. We try to "seek first the Kingdom of God", and to uphold one another in this quest by prayer, conversation, and sharing of insights in an atmosphere of mutual respect and loving solidarity.
 
 Not all of us are Anglicans, not all would identify themselves as "Socialists", and those who do might not always agree on exactly what we mean by the term. We are not an organization, we have no leaders or "gurus", and there is no party line. But we do share a common vision, as outlined in the above Statement of Purpose.
